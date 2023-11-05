@@ -1,2 +1,3 @@
 # naitik portfolio
-this portfolio will come tomorrow i am naitik kumar form madhya pradesh
+hyy !! this is naitik kumar to just want you know ,
+you are motherfuker 👇
